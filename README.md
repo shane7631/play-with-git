@@ -8,7 +8,7 @@ Thanks, I will
 
 Signature:
 
-![](doggie.jpg)
+![](anime.jpg)
 
 ### Great cities
 * Seattle
